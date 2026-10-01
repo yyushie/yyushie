@@ -1,5 +1,4 @@
-## Hi there 👋
-
+<img width="500" height="733" alt="Image" src="https://github.com/user-attachments/assets/e1f8c642-45b0-42c6-a742-2a728bb5f80c" />
 <!--
 **yyushie/yyushie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
