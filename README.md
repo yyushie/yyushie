@@ -1,1 +1,1 @@
-https://github.com/Disbelieff/zzzzz/issues/1#issue-6515607798
+<img width="504" height="280" alt="zzzppp" src="https://github.com/user-attachments/assets/f9710ece-9b72-4a62-ac2e-01f726e9b31d" />
