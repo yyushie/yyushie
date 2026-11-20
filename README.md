@@ -1,1 +1,1 @@
-<img width="504" height="280" alt="zzz" src="https://github.com/user-attachments/assets/46c13785-6692-4338-a6e2-87d4afdca798" />
+https://github.com/Disbelieff/zzzzz/issues/1#issue-6515607798
